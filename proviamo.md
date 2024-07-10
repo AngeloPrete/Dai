@@ -1,0 +1,1 @@
+![alt text](Diagramma_senza_titolo-1.png)
